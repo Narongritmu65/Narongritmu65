@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi I'm Ben Student fromThailand .<br>i like to play FPS Games Thank you very much.
+Hi I'm Ben Student from Thailand .<br>Nice To Meet You Brother.
 
 
 # 💻 Tech Stack:
